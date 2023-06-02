@@ -1,4 +1,4 @@
-# Zelda-Tears-Of-The-Kingdom-100-Save
+# Zelda-Tears-Of-The-Kingdom-100-Percent-Save
 
 All 152 Shrines 
 
